@@ -1,1 +1,1 @@
-# UXM undergraduate✋🏻
+# UXM under graduate✋🏻
