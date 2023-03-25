@@ -1,1 +1,1 @@
-# .github
+# UXM undergraduate✋🏻
